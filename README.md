@@ -1,0 +1,6 @@
+# MAD.PRACTICAL2_200120111158  ![image](https://user-images.githubusercontent.com/110724108/187037490-b7659ad8-b509-4aa0-9d3f-35f8e2ef668e.png)
+![image](https://user-images.githubusercontent.com/110724108/187037552-f556659f-a896-456d-9ca8-f907eaa6cdc0.png)
+![image](https://user-images.githubusercontent.com/110724108/187037575-deb91d68-cf11-4982-ad6b-d8e187f8733d.png)
+![image](https://user-images.githubusercontent.com/110724108/187037594-2f786da8-e601-451c-b727-2970d16e22a2.png)
+![image](https://user-images.githubusercontent.com/110724108/187037639-79eb273e-e833-49ee-9ef5-d41375258e40.png)
+![image](https://user-images.githubusercontent.com/110724108/187037683-ccd530ff-da20-49b4-8ff9-6978746a7d61.png)
